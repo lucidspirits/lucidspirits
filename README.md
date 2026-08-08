@@ -2,7 +2,7 @@
 <img src="https://64.media.tumblr.com/0aaede3459277e4beeb0fb11ea8672bf/88b6a1793e0f7de0-8b/s1280x1920/4bc0fa035f9feeb0e2a61316f69febf130e0fbdd.pnj" width="400" align="left" style="margin-right: 20px;">
 <div align="center">
 <br>
-<p>&nbsp;<b><a href="https://sahlglitchyxx.atabook.org/"><font color="green">新book </font></a></b> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <b><a href="https://p1c0f4n.straw.page/"><font color="green">straw</font></a></b></p>
+<p>&nbsp;<b><a href="https://themagmaticmonstriosity.atabook.org/"><font color="green">新book </font></a></b> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <b><a href="https://p1c0f4n.straw.page/"><font color="green">straw</font></a></b></p>
 <br>
 <p> <font color="orchid"> &nbsp;&nbsp;&nbsp;&nbsp; (˶ˆᗜˆ˵) </font></p>
 <br>
