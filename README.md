@@ -1,7 +1,7 @@
 <div align="center">
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=yourusername&color=dbb889&label=viewers&abbreviated=true" />
+  <img src="https://komarev.com/ghpvc/?username=yourusername&color=fdc3d1&label=viewers&abbreviated=true" />
 </p>
 
 <img src="https://i.pinimg.com/1200x/5f/c7/69/5fc769c01ef199cd3146581a0ea881b5.jpg" width="350px">  <br>
