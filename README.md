@@ -8,4 +8,4 @@
 
 art&nbsp;&nbsp;&nbsp;&nbsp; aint&nbsp;&nbsp;&nbsp;&nbsp; mine
 
-sign my&nbsp;&nbsp; [ata](https://themagmaticmonstriosity.atabook.org/) &nbsp;&nbsp;&nbsp;&nbsp;/&nbsp;&nbsp;&nbsp;&nbsp; [sp](https://ariabooo.straw.page/)
+sign my&nbsp;&nbsp; [ata](https://themagmaticmonstriosity.atabook.org/) &nbsp;&nbsp;&nbsp;&nbsp;/&nbsp;&nbsp;&nbsp;&nbsp; [info](https://repris.org/haveenzone)
